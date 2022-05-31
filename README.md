@@ -8,6 +8,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with freelancing and junior level jobs
 - 💬 Ask me about story of Data 
 - 📫 How to reach me: doleshorkhad@gmail.com
-- 😄 Pronouns: Sunil Khadka
 - ⚡ Fun fact: I love programming.
 
